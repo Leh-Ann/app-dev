@@ -32,14 +32,6 @@ It’s a story that makes you think about your own life, memories, and the meani
 
 ---
 
-## Themes and Lessons
-
-- The **passage of time** and how it changes people.  
-- The importance of **cherishing fleeting moments** with loved ones.  
-- Understanding that **emotional growth** can happen even centuries later.  
-- The value of **legacy** — how memories and kindness can outlast a lifetime.  
-
----
 
 ## Memorable Quote
 > “I probably just want someone to remember who I am. Even if only a little. The purpose of life is to be known and remembered. Only a little. You just need to change someone’s life. That’s all, I’m sure.”
